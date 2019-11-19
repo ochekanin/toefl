@@ -6,3 +6,4 @@ Writing, prep materials and resources for TOEFL
 
 # Writing
 [IELTS TOEFL Writing Full essay (high score)](https://www.youtube.com/watch?v=lNeHfQBSebY)
+[Essay questions](https://www.examword.com/toefl-practice/writing-question)
