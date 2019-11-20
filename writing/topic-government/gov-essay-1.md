@@ -9,8 +9,8 @@ governments and humans without regard to residence. Everyone suffers from global
 warming, massive air pollution and lots of garbage produced by humans. One can
 change living habits, become more eco-friendly and take care of nature, but
 it makes no sense if the government doesn't pursue a policy for protecting the
-environment. Therefore I believe that the official position of governs is much
-more important than individuals' actions.
+environment. Therefore I believe that the official position of state leaders is
+much more important than individuals' actions.
 
 One of the tremendous threats is an accumulating amount of garbage all around
 the globe. There is a lot of plastic, and other harmful materials that are not
