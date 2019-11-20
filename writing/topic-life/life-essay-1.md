@@ -13,3 +13,8 @@ Increasing population
 New technologies that under development nowadays
     4th industrial revolution will diminish low-skill jobs with high level of
     automatization, increasing competetion for job applicants
+
+For the last 50 years mankind made bigger technological progress than ever in
+the history. Current technologies were considered as fantastic several decades
+ago. Even time when my parents borned is uncomparable with current time.
+But everything has a price.
