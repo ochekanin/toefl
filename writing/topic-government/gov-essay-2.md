@@ -23,14 +23,14 @@ reforms to build a trustworthy judicial system, government institutions, and
 stable economy.
 
 In the case of Ukraine, it's done by signing an agreement with the European
-Union for integration and prospective join to the EU. Ukrain made commitments to
-adopt its laws in accordance with the European legislation and comply with
-demands stated in the agreement. All these requirements are met to make Ukraine
-state more economically stable, provide changes in stagnant educational and
-healthcare systems, and overcome overall corruption in all levels of public
-authorities. International institutions like IMF or EU representatives have
-stated positive changes in Ukraine and reforms made for the last five years are
-considered as the deepest and influential ones since Ukraine independency.
+Union for integration and prospective join to the EU. Ukraine made commitments
+to adopt its laws in accordance with the European legislation and comply with
+demands stated in the agreement. All these requirements are set to make Ukraine
+more economically stable, provide changes in stagnant educational and healthcare
+systems, and overcome overall corruption in all levels of public authorities.
+International institutions like IMF or EU representatives have stated positive
+changes in Ukraine and reforms made for the last five years are considered as
+the deepest and influential ones since Ukraine independency.
 
 Positive changes that happened during the last years in Ukraine are also a
 result of the government's priorities and hard work. So positive shifts in
